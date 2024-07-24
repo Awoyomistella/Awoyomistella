@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Awoyomistella
 - 👀 I’m interested in Business Intelligence Analyst and Data Analyst 
 - 🌱 I’m currently working as a Business Intelligence Analyst
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Business project 
 - 📫 How to reach me 07513788637,stellaawoyomi@outlook.com
 
 <!---
